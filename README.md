@@ -1,5 +1,7 @@
 ⚡Sou apaixonada por tecnologia e adoro aprender coisas novas todos os dias!
+
 🌱 Estudante de Análise e Desenvolvimento de Sistemas 🎓💻".
+
 📫 Como entrar em contato comigo: Você pode me enviar um email para crislane0323@gmail.com.
 
 
